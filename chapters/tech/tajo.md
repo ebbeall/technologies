@@ -1,4 +1,4 @@
-## Tajo :o:
+## Tajo :hand:
 
 
 |          |                        |
